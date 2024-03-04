@@ -2,7 +2,7 @@
 
 <h4 align="center"> 𝐀 𝐏𝐎𝐖𝐄𝐑𝐅𝐔𝐋 𝐒𝐏𝐀𝐌𝐁𝐎𝐓𝐒</h4>
 
-<p align="center"><a href="https://t.me/GhostRadha"><img src= "https://telegra.ph/file/821948aa0310944c93b68.jpg"
+<p align="center"><a href="https://t.me/DHILLxN_000"><img src= "https://telegra.ph/file/821948aa0310944c93b68.jpg"
 width="400"></a></p>
 
 > ⭐️ Thanks to everyone for using this op BOTXSPAM. That is the greatest pleasure we have !
