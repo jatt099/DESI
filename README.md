@@ -25,5 +25,3 @@
 <br>
 
 <a href="https://t.me/RadhaX2Update"><img src="https://img.shields.io/badge/Join-Telegram%20Channel-red.svg?logo=Telegram"></a>
-
-</details>
