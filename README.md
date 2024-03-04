@@ -25,5 +25,3 @@
 <br>
 
 <a href="https://t.me/DHILLxN_000"><img src="https://img.shields.io/badge/Join-Telegram https://t.me/PANJABI_CHAT"></a>
-
-</details>
